@@ -2,9 +2,7 @@
 
 Meu nome é Vitória⋆⭒˚.⋆🪐 ⋆⭒˚.⋆ 
 
-Sou estudante🎀 ྀི
-
-Estou estudando na Alura﹒⌗﹒🦇﹒౨ৎ˚₊‧
+Estou estudando na Alura🎀 ྀི
 
 Estou me desenvolvendo na linguagem JavaScript★🎸🎧⋆｡ °⋆
 
